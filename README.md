@@ -15,4 +15,5 @@ Passionate about technology, digital trends, and online resources. Sharing usefu
 ## Connect
 
 - Website:  https://dikgame.org/
-- LinkedIn: 
+- LinkedIn: https://www.linkedin.com/in/lizazo-dikgame/
+  
