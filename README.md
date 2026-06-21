@@ -1,18 +1,18 @@
-# Bella Zee
+# Lizazo
 
-Digital Content Creator | Technology Enthusiast | Blogger at 4FNet
+Digital Content Creator | Technology Enthusiast | Blogger at dikgame
 
 ## About Me
 
-Passionate about technology, digital trends, and online resources. Sharing useful insights, guides, and quality content through 4FNet.
+Passionate about technology, digital trends, and online resources. Sharing useful insights, guides, and quality content through dikgame.
 
-🌐 Website: https://4fnet.to
+🌐 Website:  https://dikgame.org/
 
 📍 Karachi, Pakistan
 
-🏢 Company: 4FNet
+🏢 Company: dikgame
 
 ## Connect
 
-- Website: https://4fnet.to
+- Website:  https://dikgame.org/
 - LinkedIn: 
